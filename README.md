@@ -1,0 +1,2 @@
+# FortniteSucks
+ Everyone Knows That
